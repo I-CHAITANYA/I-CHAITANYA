@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, Robotics, Aeronautics
 - 🌱 I’m currently learning AI&ML, Python Programming
 - 💞️ I’m looking to collaborate on N/A 
-- 📫 How to reach me through email chaudharichaitanya09@gmail.com
+- 📫 How to reach me through email chaitanya.chaudhari017@gmail.com
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: --
 
